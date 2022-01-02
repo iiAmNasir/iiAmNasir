@@ -7,5 +7,5 @@ Hola, I'm Nasir Iqbal! 👋
 
 😄 Pronouns: He/His
 
-⚡ Fun fact: I spend almost 12 hours listening to songs every day.
+⚡ Fun fact: I play Table Tennis more than 4 hours a day.
 
