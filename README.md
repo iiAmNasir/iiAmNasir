@@ -7,5 +7,5 @@ Hola, I'm Nasir Iqbal! 👋
 
 😄 Pronouns: He/His
 
-⚡ Fun fact: I can play table tennis for all day😄.
+⚡ Fun fact: I can play table tennis all the day😄.
 
